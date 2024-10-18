@@ -1,1 +1,1 @@
-csodigitalproduct
+csodigitalproduct-lampu-kipas
